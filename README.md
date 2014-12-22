@@ -33,8 +33,14 @@ This keyboarded and encoded edition of the
 
 #####Body#####
 
+1. A most sweet Song of an English Merchant,
+borne at Chichester.
+A Rich Merchant man,That was both graue and wise,Did kill a man at E••den Towne,Through quarrels tha
+    _ The second Part, To the same tune.
+
 #####Back#####
-A most sweet song of an English merchant, borne at Chichester To an excellent new tune.1640Approx. 8
+Printed at London for Francis Coules
+in the Old-Bayley.
 **Types of content**
 
   * There are 189 **verse** lines!
